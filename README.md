@@ -1,1 +1,0 @@
-# oseias2024-project1
